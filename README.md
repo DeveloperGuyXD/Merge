@@ -1,4 +1,4 @@
 # Merge
 Fasza
 XDDDD
-vicces ez a Feri
+Nagyon vicces ez a Feri
